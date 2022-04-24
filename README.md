@@ -1,0 +1,1 @@
+# Tugas-algoritma-genetika-Nada-Syifa---2070231091-
